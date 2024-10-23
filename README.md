@@ -1,4 +1,4 @@
-# Hello! I'm  👋
+# Hello! I'm  Javokhir👋
 
 ### Languages and Tools
 
